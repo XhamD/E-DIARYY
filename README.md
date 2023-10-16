@@ -1,1 +1,1 @@
-# E-DIARYY
+# E-Diary
